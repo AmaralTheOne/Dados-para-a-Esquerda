@@ -1,10 +1,12 @@
+"Capitalists Are Bad At Business": https://www.youtube.com/watch?v=yP9Oj65OweI&ab_channel=CorporateAesthetic
+
 General Inequality:https://inequality.org/facts/racial-inequality/Most 
 
 ​	Europa:https://www.observatorio-das-desigualdades.com/indicadores/
 
 ​	World’s billionaires have more wealth than 4.6 billion people: https://www.oxfam.org/en/press-releases/worlds-billionaires-have-more-wealth-46-billion-people
 
-Climate crises:https://climate.nasa.gov/vital-signs/sea-level/º
+Climate crises:https://climate.nasa.gov/vital-signs/sea-level/
 
 Health crisis:https://climate.nasa.gov/vital-signs/sea-level/
 
@@ -74,3 +76,5 @@ American Democracy at decline:
 16. The Neoliberal consensus: https://www.jacobinmag.com/2019/11/neoliberalism-term-meaning-democratic-party-jonathan-chait
 
 Wage Slavery Crisis:https://www.fnbo.com/insights/2020/newsroom/fnbo-releases-2020-financial-planning-survey/index.htmlhttps://www.washingtonpost.com/business/2020/08/17/breakdown-what-living-paycheck-to-paycheck-looks-like/
+
+How Capitalism Hurts Innovation and Motivation: https://www.youtube.com/watch?v=s1KQUFBvbMU
