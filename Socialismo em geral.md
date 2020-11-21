@@ -10,3 +10,4 @@
 
 [The difference between personal and private property](https://www.youtube.com/watch?v=eknoQYrgq60)
 
+[Does income inequality cause health and social problems?](https://www.jrf.org.uk/sites/default/files/jrf/migrated/files/Rowlingson-Income-eBook.pdf)

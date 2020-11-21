@@ -12,7 +12,7 @@ Portugal e Prisões:
 
 4. Elevado número de presos em Portugal intriga Provedora de Justiça: https://observador.pt/2019/06/19/elevado-numero-de-presos-em-portugal-intriga-provedora-de-justica/
 
+[Países com sistemas de Saúde do "tipo SNS" têm piores níveis de desempenho?](https://poligrafo.sapo.pt/fact-check/paises-com-sistemas-de-saude-do-tipo-sns-tem-piores-niveis-de-desempenho)
 
-
-
+[Income inequality](https://wid.world/country/portugal/)
 
