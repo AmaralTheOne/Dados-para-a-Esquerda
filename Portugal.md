@@ -16,3 +16,13 @@ Portugal e Prisões:
 
 [Income inequality](https://wid.world/country/portugal/)
 
+
+
+[Dinheiro produzido por mês](https://www.pordata.pt/Europa/Produtividade+do+trabalho+por+hora+trabalhada+(Euro)-3019): 23€/h * 40h * 4,3 semanas = 3956€ mensais
+
+[Salário médio mensal ](https://www.pordata.pt/Portugal/Salário+médio+mensal+dos+trabalhadores+por+conta+de+outrem+remuneração+base+e+ganho-857): 970,4€ 
+
+Para onde vai os 2 985,6€ restantes?
+
+
+
