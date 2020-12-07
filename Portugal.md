@@ -26,3 +26,7 @@ Para onde vai os 2 985,6€ restantes?
 
 
 
+[2020 Social Progress Index Português](https://www.socialprogress.org/?tab=2&code=PRT)
+
+
+

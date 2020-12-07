@@ -78,3 +78,5 @@ American Democracy at decline:
 Wage Slavery Crisis:https://www.fnbo.com/insights/2020/newsroom/fnbo-releases-2020-financial-planning-survey/index.htmlhttps://www.washingtonpost.com/business/2020/08/17/breakdown-what-living-paycheck-to-paycheck-looks-like/
 
 How Capitalism Hurts Innovation and Motivation: https://www.youtube.com/watch?v=s1KQUFBvbMU
+
+[Thread sobre o aumento da diferença entre produtividade e salarios](https://twitter.com/naguiar/status/1331351119751208962?s=20)
