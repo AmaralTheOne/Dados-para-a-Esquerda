@@ -24,9 +24,7 @@ Portugal e Prisões:
 
 Para onde vai os 2 985,6€ restantes?
 
-
-
 [2020 Social Progress Index Português](https://www.socialprogress.org/?tab=2&code=PRT)
 
-
+[Deflação e aumento de salários](http://economiax.blogspot.com/2017/01/a-inflacao-em-portugal-e-na-ue.html)
 
