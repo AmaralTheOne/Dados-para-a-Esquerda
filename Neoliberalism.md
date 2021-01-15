@@ -10,3 +10,4 @@ The Failure of Trickle-Down Economics | Robert Reich: https://www.youtube.com/wa
 
 Rise Up Vs. Trickle Down Economics | Robert Reich: https://www.youtube.com/watch?v=mybOUF6DOyo
 
+[How China Won Trump’s Trade War and Got Americans to Foot the Bill](https://www.bloomberg.com/news/articles/2021-01-11/how-china-won-trump-s-good-and-easy-to-win-trade-war)

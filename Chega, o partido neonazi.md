@@ -7,3 +7,7 @@ Dog-whistle de golpe de estado fascista: https://twitter.com/AndreCVentura/statu
 Chega e ligação a nazis, fascistas, criminosos: https://twitter.com/hornyemoji/status/1259909305823711232 
 
 Lider do grupo que ameaçou deputados pertence ao Chega: https://sol.sapo.pt/artigo/706573/lider-da-resist-ncia-nacional-e-do-chega
+
+André Ventura diz que os "portugueses vão acordar" e "não tolerar pessoas dessas " sobre o Castelo Branco https://twitter.com/oTiagoDavid/status/1347222061274562568?s=20
+
+Discurso Xenófobo: https://twitter.com/Adriana_Az27/status/1349501626260860930?s=20

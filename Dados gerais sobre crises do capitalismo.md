@@ -29,6 +29,7 @@ Poverty crisis:
 Crescimento da pobreza (dismitificar mitos populares sobre a pobreza): https://www.currentaffairs.org/2019/07/5-myths-about-global-poverty
 
 1. extra, dados oficiais do OWD: https://ourworldindata.org/grapher/distribution-of-population-poverty-thresholds?stackMode=relative
+2. Video: https://www.youtube.com/watch?v=Co4FES0ehyI
 
 Housing Crisis:USA:https://inthesetimes.com/article/affordable-housing-crisis-rising-rent-homebuyers-market
 
@@ -80,3 +81,7 @@ Wage Slavery Crisis:https://www.fnbo.com/insights/2020/newsroom/fnbo-releases-20
 How Capitalism Hurts Innovation and Motivation: https://www.youtube.com/watch?v=s1KQUFBvbMU
 
 [Thread sobre o aumento da diferença entre produtividade e salarios](https://twitter.com/naguiar/status/1331351119751208962?s=20)
+
+[America’s Favorite Anarchist Thinks Most US Workers Are Wage Slaves](https://www.marketwatch.com/story/a-shocking-number-of-americans-are-living-paycheck-to-paycheck-2020-01-07)
+
+[A shocking number of Americans are living paycheck to paycheck](https://www.businessinsider.com/most-american-workers-are-slaves-2014-4)
