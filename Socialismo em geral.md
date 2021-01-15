@@ -17,3 +17,5 @@
 [23 Things They Don't Tell You About Capitalism](https://1lib.eu/book/919835/96d211)
 
 [Economic Development, Political-Economic System, and the Physical Quality of Life](https://ajph.aphapublications.org/doi/pdf/10.2105/AJPH.76.6.661)
+
+[The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://1lib.eu/book/5218819/c937e7)
