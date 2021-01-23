@@ -1,0 +1,1 @@
+https://socdoneleft.github.io/stinky_rightwinger_factsheet.html

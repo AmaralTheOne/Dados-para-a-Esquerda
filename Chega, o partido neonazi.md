@@ -13,3 +13,10 @@ André Ventura diz que os "portugueses vão acordar" e "não tolerar pessoas des
 Discurso Xenófobo: https://twitter.com/Adriana_Az27/status/1349501626260860930?s=20
 
 [André Ventura admite racismo](https://twitter.com/UmaPaginaSocial/status/1346581443460395009?s=20)
+
+[Ventura sugere “campanha dos lábios negros pelo luto” em dia de protesto em Trás-os-Montes](https://expresso.pt/presidenciais2021/2021-01-17-Ventura-sugere-campanha-dos-labios-negros-pelo-luto-em-dia-de-protesto-em-Tras-os-Montes?_gl=1*1rkk8r3*_ga*YW1wLTBLaXhsTldqTzNYX21PWng5SmpCQmc)
+
+[André Ventura paga a "ciganos" para irem a comícios](https://twitter.com/EuSouZarolho/status/1350940065824989184?s=20) [outros posts](https://twitter.com/moreira_tweet/status/1350943044506419202/photo/1)
+
+[Dog whistle "arregimenta tropas para Exército"](https://mobile.twitter.com/GoncaloPCruz/status/1351558152232312832)
+
