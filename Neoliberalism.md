@@ -45,3 +45,5 @@ Rise Up Vs. Trickle Down Economics | Robert Reich: https://www.youtube.com/watch
 [No, Thatcher Didn’t Save the Economy](https://tribunemag.co.uk/2020/12/no-thatcher-didnt-save-the-economy)
 
 ['It's a political failure': how Sweden's celebrated schools system fell into crisis](https://www.theguardian.com/world/2015/jun/10/sweden-schools-crisis-political-failure-education)
+
+[Minecraft Economics: A Study of Wealth Inequality in a Virtual World](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3185048)
