@@ -19,3 +19,5 @@
 [Economic Development, Political-Economic System, and the Physical Quality of Life](https://ajph.aphapublications.org/doi/pdf/10.2105/AJPH.76.6.661)
 
 [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://1lib.eu/book/5218819/c937e7)
+
+[The Socialist Contributions to Human Rights: An Overlooked Legacy](https://sci-hub.do/https://doi.org/10.1080/13642980500095377)

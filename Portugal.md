@@ -39,3 +39,5 @@ Descendentes de famílias pobres em Portugal necessitam de "cinco gerações" pa
 [SEGURANÇA PRIVADA: EXÉRCITO DE PRECÁRIOS (1/8): Boinas](https://fumaca.pt/seguranca-privada-exercito-precarios-boinas/?utm_source=Twitter&utm_medium=Tweet&utm_content=Lançamento_Boinas)
 
 [RTP 2 - Os Donos de Portugal](https://www.youtube.com/watch?v=OuzxncV9l3M)
+
+[Quem votou em quem nas presidenciais de 2021?](https://www.tsf.pt/portugal/politica/ps-perto-dos-40-bloco-cai-e-deixa-chega-em-terceiro-13275731.html)

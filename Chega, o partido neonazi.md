@@ -20,3 +20,15 @@ Discurso Xenófobo: https://twitter.com/Adriana_Az27/status/1349501626260860930?
 
 [Dog whistle "arregimenta tropas para Exército"](https://mobile.twitter.com/GoncaloPCruz/status/1351558152232312832)
 
+[Mário Machado apela à participação da extrema-direita na manifestação do Chega](https://visao.sapo.pt/atualidade/politica/2020-06-19-mario-machado-apela-a-participacao-da-extrema-direita-na-manifestacao-do-chega/)
+
+[Apoios de elites ao Chega](https://twitter.com/gandama2uco/status/1310159560368422912)
+
+[Relatório europeu alerta para risco de "radicalização" da extrema-direita em Portugal](https://www.rtp.pt/noticias/politica/relatorio-europeu-alerta-para-risco-de-radicalizacao-da-extrema-direita-em-portugal_n1297800#)
+
+[Não existe correlação entre pobreza e apoiar o Chega, mas sim entre xenofobia](https://twitter.com/alexandreafonso/status/1360731984687992833?s=20) 
+
+------------------------------------------------------------------------------------------------------------------------------------------
+
+[Ex-Votantes do PCP que votaram Ventura mostram serem racistas](https://www.dn.pt/politica/sabemos-que-sao-fascistas-agora-que-votaram-ventura-13276703.html)
+
