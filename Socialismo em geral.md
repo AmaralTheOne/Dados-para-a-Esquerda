@@ -21,3 +21,5 @@
 [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://1lib.eu/book/5218819/c937e7)
 
 [The Socialist Contributions to Human Rights: An Overlooked Legacy](https://sci-hub.do/https://doi.org/10.1080/13642980500095377)
+
+[The social safety net and entrepreneurship are linked](https://twitter.com/emollick/status/1362967913267945473)
